@@ -6,7 +6,11 @@
 
 1.了凡四训电子版全文，包括了凡四训原文以及译文。
 
+<img width="600" height="400" alt="了凡四训" src="https://github.com/user-attachments/assets/b4d3f95f-aea3-4bfb-8ab5-d846a7c52101" />
+
 2.你是自己命运的设计师秦东魁pdf，这本书被称为“现代版了凡四训”。
+
+<img width="600" height="400" alt="你是自己命运的设计师" src="https://github.com/user-attachments/assets/07a7fdab-a2ed-4969-b631-afa960c697d4" />
 
 3.阴律无情 原文（第一、第二册全集）
 
